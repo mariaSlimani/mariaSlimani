@@ -3,8 +3,7 @@
 👀 I’m interested in creative writing, graphic design, software developpement (desktop, web, game, mobile) and AI.<br>
 🌱 I graduated from ESI-Algiers and currently hold a diploma of state computer engineer, System and software engineering branch.<br>
 💞️ I’m open for work and currently looking to collaborate on any interesting developpement project.<br>
-📫 You can reach me through my E-mail : iw_slimani@esi.dz<br>                          
-or my LinkedIn account : linkedin.com/in/wassila-maria-slimani/
+📫 You can reach me through my E-mail : iw_slimani@esi.dz or my LinkedIn account : linkedin.com/in/wassila-maria-slimani/
 
 
 ## 🌐 Socials:
